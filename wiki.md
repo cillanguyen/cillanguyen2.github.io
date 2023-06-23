@@ -29,4 +29,4 @@ A ending scene was with grown Taku boarding a train like any other day, but this
 ## Similar Movies to Your Name
 1. Suzume
 2. Weathering with You
-3. Howl's Moving Castle
+3. Howl's Moving Castles
